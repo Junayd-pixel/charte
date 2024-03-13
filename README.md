@@ -1,2 +1,2 @@
 					
-Ceci est ma charte dengagement et je mengage à la respecter!
+Ceci est ma charte d'engagement et je m'engage à la respecter!
